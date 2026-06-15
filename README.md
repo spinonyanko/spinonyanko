@@ -19,4 +19,4 @@ As a general rule, **I do not accept random friend requests.** While you can add
 If I do not receive a response within about a day, or if I decide to reject the request based on my own judgment, I may decline it. **If you repeatedly send requests or if I deem your behavior to be malicious, I may block you.** Thank you for your understanding.
 
 ---
-### One thing I’d like you to keep in mind is that my English likely reflects a Japanese context. I try my best to avoid sounding too Japanese, but I’d appreciate it if you could understand that my writing tends to take on a Japanese tone, especially when I’m tired or just waking up.
+#### One thing I’d like you to keep in mind is that my English likely reflects a Japanese context. I try my best to avoid sounding too Japanese, but I’d appreciate it if you could understand that my writing tends to take on a Japanese tone, especially when I’m tired or just waking up.
