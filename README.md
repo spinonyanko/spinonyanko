@@ -11,6 +11,9 @@ Also, I use translation tools when communicating in English. So, I might occasio
 
 By the way, I think this account is supposed to be accessible from my Discord profile... but when I think about my friends or people on my Discord servers seeing it, I sometimes wonder, “Why did they come to look at this?” Well, I haven't really written anything out of the ordinary here.
 
+### About the Game
+I absolutely love Path of Titans, and whenever a new version is released, I sometimes hunt for bugs whenever I feel like it and report them either in-game or on the dedicated bug reporting site. I also play the test versions, like the Public Test Branch, quite often, and I really enjoy finding strange behaviors and issues there XD
+
 ---
 
 If you have any questions, please post them at https://note.com/qa/aquaowl_spii
