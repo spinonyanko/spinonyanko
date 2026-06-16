@@ -13,6 +13,5 @@ By the way, I think this account is supposed to be accessible from my Discord pr
 
 ---
 
-Please post your questions using the link to the Q&A section on note. Please note that I may not be able to respond immediately, or there may be some questions I cannot answer.
 
 #### One thing I’d like you to keep in mind is that my English likely reflects a Japanese context. I try my best to avoid sounding too Japanese, but I’d appreciate it if you could understand that my writing tends to take on a Japanese tone, especially when I’m tired or just waking up.
