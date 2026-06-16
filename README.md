@@ -13,5 +13,7 @@ By the way, I think this account is supposed to be accessible from my Discord pr
 
 ---
 
+If you have any questions, please post them at https://note.com/qa/aquaowl_spii
+Please understand that it may take some time to receive a response, and that we may not be able to answer all questions.
 
 #### One thing I’d like you to keep in mind is that my English likely reflects a Japanese context. I try my best to avoid sounding too Japanese, but I’d appreciate it if you could understand that my writing tends to take on a Japanese tone, especially when I’m tired or just waking up.
