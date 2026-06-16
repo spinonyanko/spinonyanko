@@ -14,6 +14,14 @@ By the way, I think this account is supposed to be accessible from my Discord pr
 ### About the Game
 I absolutely love Path of Titans, and whenever a new version is released, I sometimes hunt for bugs whenever I feel like it and report them either in-game or on the dedicated bug reporting site. I also play the test versions, like the Public Test Branch, quite often, and I really enjoy finding strange behaviors and issues there XD
 
+
+### To everyone reading this profile:
+I’m totally baffled lol
+
+I think my followers are all truly unique and amazing people. I’m not exactly an expert on code, and I’m not the type of person who develops things lol
+
+But that’s exactly why I get a different kind of thrill from this than I do when I’m just playing games!
+
 ---
 
 If you have any questions, please post them at https://note.com/qa/aquaowl_spii
