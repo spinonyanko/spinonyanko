@@ -22,6 +22,10 @@ I think my followers are all truly unique and amazing people. I’m not exactly 
 
 But that’s exactly why I get a different kind of thrill from this than I do when I’m just playing games!
 
+### A little joke
+
+I'm talking about languages of the world, but everyone else is talking about programming languages…
+
 ---
 
 If you have any questions, please post them at https://note.com/qa/aquaowl_spii
