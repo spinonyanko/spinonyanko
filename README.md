@@ -14,6 +14,12 @@ By the way, I think this account is supposed to be accessible from my Discord pr
 ### About the Game
 I absolutely love Path of Titans, and whenever a new version is released, I sometimes hunt for bugs whenever I feel like it and report them either in-game or on the dedicated bug reporting site. I also play the test versions, like the Public Test Branch, quite often, and I really enjoy finding strange behaviors and issues there XD
 
+I’m not just reporting bugs — I’m also a player who genuinely enjoys the game for what it is, and I especially love Spinosaurus!
+
+I’m actually a surprisingly skilled player in the game XD
+
+I was also involved in the localization of Path of Titans, so you can find some of my translations in the game. Because of that, I’ve had many chances to think about the game from both a player’s perspective and a language perspective lol
+
 
 ### To everyone reading this profile:
 I’m totally baffled lol
