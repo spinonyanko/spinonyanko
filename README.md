@@ -18,9 +18,6 @@ I’m not just reporting bugs — I’m also a player who genuinely enjoys the g
 
 I’m actually a surprisingly skilled player in the game XD
 
-I was also involved in the localization of Path of Titans, so you can find some of my translations in the game. Because of that, I’ve had many chances to think about the game from both a player’s perspective and a language perspective lol
-
-
 ### To everyone reading this profile:
 I’m totally baffled lol
 
