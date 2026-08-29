@@ -18,6 +18,9 @@ Lastly, I’m also genuinely interested in how these underlying systems work. Th
 ### About the Game
 ​In Path of Titans, which is one of my favorite games, I mainly play as Spinosaurus. Beyond just playing for fun, whenever a new version or test build is released, I occasionally look for bugs and report them either in-game or on the bug reporting site. Though I do wonder if it’s okay for me to be writing stuff like this on GitHub lol
 
+### A little joke
+Everyone's talking about programming languages, but I'm talking about the languages of the world XD
+
 ---
 
 ​Finally, to everyone reading this:
