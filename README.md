@@ -8,7 +8,8 @@ I’m Aqua_spii. For now, I’m just a gamer, and I created this account on a wh
 
 ---
 
-**​So, why did I create this account in the first place?**
+#### So, why did I create this account in the first place?
+
 One reason is simply that I’m interested in this field. That’s why I happen to be following various companies here.
 
 Another reason is that this space gives me a different kind of stimulation compared to just playing games. To be completely honest, there are many things I don't fully understand, but I keep browsing with the mindset that learning them won't hurt lol
