@@ -39,3 +39,8 @@ Everyone's talking about programming languages, but I'm talking about the langua
 If you have any questions, please post them at https://note.com/qa/aquaowl_spii
 
 Please understand that it may take some time to receive a response, and that we may not be able to answer all questions.
+
+If you’d like to contact me directly, you can also find me on Discord: spii_222
+
+**If you're sending me a friend request, please be sure to include a reason. I may not accept requests from people I don't know.**
+Also, depending on my Discord settings, you might not be able to send me a friend request. If that happens, please join a server we both are on. (Hint: It's listed on this profile.)
