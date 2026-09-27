@@ -36,7 +36,7 @@ Everyone's talking about programming languages, but I'm talking about the langua
 
 ---
 
-If you have any questions, please post them at https://note.com/qa/aquaowl_spii or https://x.com/AquaOwl_spii
+If you have any questions, please post them at https://note.com/qa/aquaowl_spii(Or here: https://x.com/AquaOwl_spii)
 
 Please understand that it may take some time to receive a response, and that we may not be able to answer all questions.
 
